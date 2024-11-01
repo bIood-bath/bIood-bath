@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000)
+![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000) BE THE FIRST TO SIGBN MY ATABOOOOK GOOOOO!!!
 
 
 ![](https://71781816.carrd.co/assets/images/image10.jpg?v=0641c577)
