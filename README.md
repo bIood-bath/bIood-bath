@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=FREAKS&base=1000)
+![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=pony+FREAKS&base=1000)
 ![](https://71781816.carrd.co/assets/images/image10.jpg?v=0641c577)
 
 <!--
