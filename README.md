@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000) 
 
 
-![](https://71781816.carrd.co/assets/images/image10.jpg?v=0641c577)
-
 <!--
 **piercedskin/piercedskin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
