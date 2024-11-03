@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000) 
 
-i mute public chat sometimes sorry -_-
+i mute public chat sometimes sorry -_- shutt the heeell uuup
 
 
 <!--
