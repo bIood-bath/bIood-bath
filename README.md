@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000) 
 
+i mute public chat sometimes sorry -_-
+
 
 <!--
 **piercedskin/piercedskin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
