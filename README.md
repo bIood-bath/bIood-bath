@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=views&base=1000) 
 
-i hate ponytiwn players to be honest 
+i hate ponytiwn players to be honest SHUUT THE FUUUCK UUUUUUP
 
 <!--
 **piercedskin/piercedskin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
