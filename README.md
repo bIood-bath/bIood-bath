@@ -1,2 +1,2 @@
-![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=lightgrey&label=witnesses&base=1000) 
+![](https://komarev.com/ghpvc/?username=your-github-piercedskin&color=white&label=witnesses&base=1000) 
 
