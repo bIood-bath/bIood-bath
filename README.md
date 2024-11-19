@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=piercedskin&color=c5c5c5&label=witnesses&base=1000) 
+![](https://komarev.com/ghpvc/?username=piercedskin&color=6081AC&label=witnesses&base=1000) 
 
 
