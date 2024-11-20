@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=piercedskin&color=fefefe&label=witnesses&base=1000) 
+![](https://komarev.com/ghpvc/?username=piercedskin&color=868686&label=witnesses&base=1000) 
 
 how i look asking people to sign my atabook 
 
