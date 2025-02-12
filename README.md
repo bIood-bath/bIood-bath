@@ -2,9 +2,6 @@
 
 18 years old 
 
-gotta be a loser to copy someone's skin
-
-
 
 
 
