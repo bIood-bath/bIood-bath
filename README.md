@@ -1,6 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=yaorijuana&color=000000&label=witnesses&base=1000) 
 
-18 years old <br/> gotta be a loser to copy skins idk
+18 years old 
+gotta be a big fat loser to copy someone's skin
+
 
 
 
