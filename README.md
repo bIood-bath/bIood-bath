@@ -1,4 +1,4 @@
-<p align="center"> ![](https://komarev.com/ghpvc/?username=yaorijuana&color=000000&label=witnesses&base=1000) 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=yaorijuana&color=000000&label=witnesses&base=1000">
 
 18 years old </p>
 
