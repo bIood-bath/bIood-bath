@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=yaorijuana&color=000000&label=witnesses&base=1000"> </p
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=yaorijuana&color=green&label=witnesses&base=1000"> </p
 
  <video src="https://github.com/user-attachments/assets/bc0921ef-5e7a-418f-921a-a1be6152d305"> </video> 
 
